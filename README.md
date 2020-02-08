@@ -1,2 +1,0 @@
-# TrainingCompany_main
- 
